@@ -1,0 +1,2 @@
+Rice Kheer:
+A bowlful of rice or vermicelli cooked in milk and flavoured with nuts, sugar, saffron makes for a luscious Indian dessert of kheer. It is a tasty recipe from North India that is also known as Payasam down south and is often offered as prasadam on various traditional festivals and pujas. It is an easy recipe that you can prepare at home in less than an hour and relish it on special occasions and festivals.
